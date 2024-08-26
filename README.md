@@ -1,4 +1,4 @@
-###boas vindas oa meu perfil💙
+###boas vindas ao meu perfil💙
 
 meu nome é rafael tersi
 

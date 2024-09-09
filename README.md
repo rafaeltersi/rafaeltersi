@@ -10,6 +10,7 @@ meu nome é rafael tersi
 
 - tersi.rafael@escola.pr.gov.br
 
-- @tersi.rafael
+  @tersi.rafael
 
-- 
+  
+https://media1.tenor.com/m/EX_4tqP-SnsAAAAC/bolsonaro-mito-brazil.gif
